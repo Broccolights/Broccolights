@@ -1,9 +1,9 @@
 ⠀<div align="center">
 
-![](https://files.catbox.moe/mwy2qd.gif)
+![](https://files.catbox.moe/mu1dpw.gif)
 
 [Rentry](https://rentry.co/Plecake)ㅤㅤ[Strawpage](https://medangel.straw.page/)ㅤㅤ[Retrospring](https://retrospring.net/@Broccolights)
 
 sign my strawpageㅤ&ㅤretrospring !!
 
-![](https://komarev.com/ghpvc/?username=broccolights&color=FF9999&style=plastic&label=Contestants)
+![](https://komarev.com/ghpvc/?username=broccolights&color=00ff2f&style=plastic&label=GR1EF3RS)
