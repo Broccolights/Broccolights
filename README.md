@@ -1,6 +1,6 @@
 ⠀<div align="center">
 
-![](https://files.catbox.moe/mu1dpw.gif)
+![](https://files.catbox.moe/zjyl0p.gif)
 
 [Rentry](https://rentry.co/Plecake)ㅤㅤ[Strawpage](https://medangel.straw.page/)ㅤㅤ[Retrospring](https://retrospring.net/@Broccolights)
 
