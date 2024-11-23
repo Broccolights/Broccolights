@@ -1,11 +1,11 @@
 ⠀<div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=broccolights&color=00ff2f&style=plastic&label=GR1EF3RS)
+![](https://komarev.com/ghpvc/?username=broccolights&color=ff1aa6&style=plastic&label=Dummies)
 
 
-![](https://files.catbox.moe/zjyl0p.gif)
+![](https://files.catbox.moe/6puor7.gif)
 
-[Rentry](https://rentry.co/Plecake)ㅤㅤ![](https://files.catbox.moe/z0gtfs.gif)ㅤㅤ[Strawpage](https://medangel.straw.page/)ㅤㅤ![](https://files.catbox.moe/z0gtfs.gif)ㅤㅤ[Atabook](https://greed.atabook.org/)
+[Rentry](https://rentry.co/Plecake)ㅤㅤ![](https://files.catbox.moe/vy36wz.gif)ㅤㅤ[Strawpage](https://medangel.straw.page/)ㅤㅤ![](https://files.catbox.moe/vy36wz.gif)ㅤㅤ[Atabook](https://greed.atabook.org/)
 
 sign my strawpage⠀⠀&⠀⠀atabook ⠀!
