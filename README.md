@@ -1,7 +1,7 @@
 ⠀<div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=broccolights&color=ff1100&style=plastic&label=Visitors)
+![](https://komarev.com/ghpvc/?username=broccolights&color=ff3c00&style=plastic&label=Visitors)
 
 
 ![](https://files.catbox.moe/yulpia.gif)
