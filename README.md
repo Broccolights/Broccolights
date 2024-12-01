@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=broccolights&color=29d0b6&style=plastic&label=Visitors!!!!)
 
 
-![](https://files.catbox.moe/emc6t9.gif)
+![](https://files.catbox.moe/zj6ua8.png)
 
 ##### [Rentry](https://rentry.co/FujiwaranoMoku)ㅤㅤ![](https://files.catbox.moe/md74w7.png)ㅤㅤ[Strawpage](https://medangel.straw.page/)ㅤㅤ![](https://files.catbox.moe/md74w7.png)ㅤㅤ[Atabook](https://greed.atabook.org/)
 
